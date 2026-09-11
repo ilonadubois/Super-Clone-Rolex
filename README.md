@@ -40,7 +40,7 @@ Un détail surprenant : les super clones parviennent désormais à reproduire la
 
 L'expérience de WIRED est révélatrice. Les journalistes ont acheté trois montres (une Submariner à 438 dollars, une Daytona à 768 dollars, et une Oyster Perpetual « Celebration » à 498 dollars) auprès d'un revendeur nommé « JTime », contacté via WhatsApp et payé en cryptomonnaie USDT .
 
-Après avoir reçu les montres, ils ont apporté l'une d'elles — une Submariner — dans une boutique Rolex à Londres pour faire ajuster le bracelet. **Le personnel n'a posé aucune question et a rendu la montre avec les maillons retirés dans un sachet officiel** .
+Après avoir reçu les montres, ils ont apporté l'une d'elles une Submariner dans une boutique Rolex à Londres pour faire ajuster le bracelet. **Le personnel n'a posé aucune question et a rendu la montre avec les maillons retirés dans un sachet officiel** .
 
 Cependant, cette anecdote doit être nuancée. Les employés de boutique ne sont pas nécessairement des experts en authentification. Leur rôle est de vendre et d'entretenir des montres, pas de les authentifier. Un horloger spécialisé ou un service d'authentification professionnel aurait probablement détecté les défauts identifiés par Hailwood .
 
